@@ -10,6 +10,18 @@ Buon divertimento nella consultazione!
 
 Luca Narduzzo
 
+
+
 [Episode 1 – Coral Reefs, Ocean Acidification and Who Was Charles Darwin?([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=1ynkzvhmy5g))
 
 [Episode 2 – Whales, Dolphins and Dragon Trees([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=7gzLDQth4wg))
+
+[Episode 3 – Komodo Dragons, Chameleons and more!([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=TTBwHBrO1FE))
+
+[Episode 4 – Meet an Octopus and Learn About Darwin’s Octopus([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=OPvq_gQo18M))
+
+[Episode 5 – Exploring Carnivorous Plants([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=Y-t4HNPWOxs))
+
+[Episode 6 – Exploring Sargassum, Giant Snails and Crossing the Atlantic!([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=zYhWXrlPT88))
+
+[Episode 7 – All About Sea Turtles from Fernando de Noronha[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=9s4HaK1TVpo))
