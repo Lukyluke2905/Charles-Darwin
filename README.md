@@ -11,3 +11,4 @@ Buon divertimento nella consultazione!
 Luca Narduzzo
 
 [Episode 1 – Coral Reefs, Ocean Acidification and Who Was Charles Darwin?([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=1ynkzvhmy5g))
+[Episode 2 – Whales, Dolphins and Dragon Trees([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=7gzLDQth4wg))
