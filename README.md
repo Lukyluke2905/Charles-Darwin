@@ -25,3 +25,25 @@ Luca Narduzzo
 [Episode 6 – Exploring Sargassum, Giant Snails and Crossing the Atlantic!([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=zYhWXrlPT88))
 
 [Episode 7 – All About Sea Turtles from Fernando de Noronha[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=9s4HaK1TVpo))
+
+[Episode 8 – Spinner Dolphins and Coral Transects[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=sJxUoN3STfs))
+
+[Episode 9 – Exploring Mangroves and Finding New Praying Mantises[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=_A8N6P7h__k))
+
+[Episode 10 – The Turtle Hospital and Guiana Dolphins[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=szc08P9nhq4))
+
+[Episode 11 – A Visit with Astronaut Nicole Stott[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=8HTQawxZwLY))
+
+[Episode 12 – Live from Ilhas Cagarras off Rio de Janeiro[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=tW25DhoKyg0))
+
+[Episode 13 – Replanting the Atlantic Rainforest and Cloud Forest[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=XAUhbAyl3U8))
+
+[Episode 14 – Albatross and Plant Adaptations with Eden Project[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=jVAf76oBwtE))
+
+[Episode 15 – Sharks, ROV’s and Giant Tortoises[https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=BiRlcLGNpbQ))
+
+
+
+
+
+
