@@ -9,3 +9,5 @@ Qui dentro trovate un po’ di tutto:
 Buon divertimento nella consultazione!
 
 Luca Narduzzo
+
+[![Episode 1 – Coral Reefs, Ocean Acidification and Who Was Charles Darwin?](https://img.youtube.com/vi/Episode 1/0.jpg)]([https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=1ynkzvhmy5g)
