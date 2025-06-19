@@ -1,3 +1,17 @@
+Während ich meine Präsentation für die Abschlussprüfung der Mittelschule vorbereitet habe, ist mir aufgefallen, dass ich eine Menge Materialien gesammelt hatte und dass ein wenig Ordnung nötig war.
+Ich war nicht so genau wie Charles Darwin, aber ich dachte, es wäre schön, auch all das zu teilen, was ich während der Prüfung nicht erzählen konnte.
+Hier drin findet ihr ein bisschen von allem:
+Persönliche Fotos, wie die von der Reise, auf der ich Darwins Haus besucht habe;
+Webseiten, die ich für mein PowerPoint benutzt habe;
+Und auch Entdeckungen und interessante Fakten, die ich beim Lernen gefunden habe.
+Viel Spaß beim Durchstöbern!
+
+Luca Narduzzo
+
+*******************************************************************************************************************
+
+
+
 Mentre preparavo la mia presentazione per l’esame di terza media, mi sono accorto che avevo raccolto un sacco di materiali e che serviva un po’ di ordine.
 
 Non sono riuscito a essere preciso come Charles Darwin, ma ho pensato che poteva essere bello condividere anche tutto quello che non sarei riuscito a raccontare durante l’esame.
